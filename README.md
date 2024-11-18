@@ -24,7 +24,8 @@
 * AI and Robotics concepts
 * My latest projects 
 * My journey into tech 
-* Sci-fi and the future of technology 
+* Sci-fi and the future of technology
+* Big Fan of sci-fi movies..[All time favourite.........Pacific Rim!!] 🤖🚀
 
 **Want to collaborate?** Let's build something extraordinary together! 
 
